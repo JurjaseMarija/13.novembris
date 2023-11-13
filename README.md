@@ -1,1 +1,1 @@
-Marija Jurjāse .
+Marija Jurjāse ..
